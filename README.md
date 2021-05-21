@@ -4,7 +4,8 @@
 -  I’m looking to collaborate on ML projects; no matter how big it is.
 -  If you are working on any kinds of ML project and you need a trainee: 📩 dorrinsam@yahoo.com
 - ‼️‼️‼️ CRAZY ABOUT RESEARCHING ‼️‼️‼️
-- 🔗 Topics I’m interested in: 📊🧠🧬🦠💉💊
+- 🔗 Topics I’m interested in:  
+     📊🧠🧬🦠💉💊
 
 <!---
 dorrinsam/dorrinsam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
