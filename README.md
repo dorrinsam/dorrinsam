@@ -2,7 +2,8 @@
 -  Interested in learning new techniques and gaining experience in Computer Science.
 -  Currently learning Algorithm Design and Analysis and also improving my mathematics.
 -  Looking to collaborate on ML projects; no matter how big it is.
--  If you are working on any kinds of ML project and you need a trainee: 📩 dorrinsam@yahoo.com
+-  If you are working on any kinds of ML project and you need a trainee: 
+   📩 dorrinsam@yahoo.com
 - ‼️‼️‼️ CRAZY ABOUT RESEARCHING ‼️‼️‼️
 - 🔗 Topics I’m interested in:  
      📊🧠🧬🦠💉💊
