@@ -5,7 +5,7 @@
 - If you are working on any kinds of ML projects and you need a trainee: 
   📩 dorrinsam@yahoo.com
 - ‼️‼️‼️ CRAZY ABOUT RESEARCHING ‼️‼️‼️
-- 🔗 Topics I’m interested in:  
+- 🔗 Favorite topics:  
      📊🧠🧬🦠💉💊
 
 <!---
