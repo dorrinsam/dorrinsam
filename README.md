@@ -3,7 +3,7 @@
 - Currently learning algorithm design and data analysis and also improving my mathematics.
 - Looking to collaborate on ML projects; no matter how big they are.
 - If you are working on any kinds of ML projects and you need a trainee: 
-  📩 dorrinsam@yahoo.com
+  📩 dorrin.sam@gmail.com
 - ‼️‼️‼️ CRAZY ABOUT RESEARCHING ‼️‼️‼️
 - 🔗 Favorite topics:  
      📊🧠🧬🦠💉💊
